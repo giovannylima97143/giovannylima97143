@@ -1,3 +1,4 @@
+SOBRE MIM 
 - 👋 Hi, I’m  giovannylima97143
 - Meu  email de contato e lima.giovanny@escola.pr.gov.br
 - 👀 I’m interested in  aprender aprogramar novas linguagens
